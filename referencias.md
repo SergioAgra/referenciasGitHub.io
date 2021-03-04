@@ -1,7 +1,8 @@
 ## Información extraída de Wikipedia, [wikipedia.org](https://es.wikipedia.org/wiki/Universo_cinematogr%C3%A1fico_de_Marvel)
 Referencias:
+
 .  La saga del Infinito: Marvel pone título a su Universo Cinematográfico CulturaOCIO.com, marzo de 2019
- - Philbrick, Jami (26 de abril de 2010). «Kevin Fiege Talks Iron Man 2, The Avengers and More». MovieWeb. Archivado desde el original el 27 de marzo de 2013. Consultado el 10 de mayo de 2010.
+. Philbrick, Jami (26 de abril de 2010). «Kevin Fiege Talks Iron Man 2, The Avengers and More». MovieWeb. Archivado desde el original el 27 de marzo de 2013. Consultado el 10 de mayo de 2010.
  . Fritz, Ben; Harris, Dana (27 de abril de 2005). «Paramount pacts for Marvel pix». Variety. Archivado desde el original el 12 de febrero de 2014. Consultado el 12 de febrero de 2014.
 .  Benezra, Karen (8 de julio de 1996). «Marvel wants to be a movie mogul». MediaWeek (VNU eMedia, Inc) 6 (28).
 .  Waxman, Sharon (18 de junio de 2007). «Marvel Wants to Flex Its Own Heroic Muscles as a Moviemaker». The New York Times. pp. 2. Archivado desde el original el 31 de marzo de 2013. Consultado el 1 de febrero de 2009.
