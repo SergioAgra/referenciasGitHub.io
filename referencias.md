@@ -222,14 +222,14 @@ Referencias:
  Goldberg, Lesley (26 de enero de 2016). «'Agents of SHIELD' Spinoff Casts Delroy Lindo». The Hollywood Reporter (en inglés). Consultado el 27 de enero de 2016.
  Ausiello, Michael (13 de mayo de 2016). «Marvel's Most Wanted DOA at ABC». TV Line (en inglés). Consultado el 13 de mayo de 2016.
  SensaCine, Marvel's Runaways, consultado el 4 de marzo de 2017
- Botías, Juan Jesús. «Marvel y Hulu anuncian el reparto de 'Runaways'». www.lacasadeel.net. Consultado el 4 de marzo de 2017.
- «[Series] La segunda temporada de Marvel’s Runaways llegará el 21 de diciembre y primera sinopsis». Blog de Superhéroes. 13 de agosto de 2018. Consultado el 13 de agosto de 2018.
- «CLOAK AND DAGGER YA TIENE FECHA DE ESTRENO». IGN Latinoamérica. 19 de enero de 2018. Consultado el 19 de enero de 2018.
- Schwartz, Terri (11 de enero de 2016). «SECOND MARVEL COMEDY IN DEVELOPMENT AT ABC». IGN (en inglés). Consultado el 13 de enero de 2016.
- Goldberg Lesley, Lesley (5 de abril de 2017). «Marvel's 'New Warriors,' With Squirrel Girl, Ordered Straight-to-Series at Freeform (Exclusive)». The Hollywood reporter (en inglés). Consultado el 8 de mayo de 2017.
- Waigmester, Elizabeth (7 de abril de 2016). «Freeform Greenlights Marvel Romance Superhero Series ‘Cloak and Dagger’ (EXCLUSIVE)». Variety (en inglés). Consultado el 7 de abril de 2016.
- «Steven S. DeKnight Joins 'Marvel's Daredevil'». Marvel.com. 24 de mayo de 2014. Archivado desde el original el 24 de mayo de 2014. Consultado el 24 de mayo de 2014.
- Cavanaugh, Patrick (21 de abril de 2015). «Netflix Orders a Second Season of 'Marvel's Daredevil'». Marvel.com. Archivado desde el original el 22 de abril de 2015. Consultado el 21 de abril de 2015.
+ . Botías, Juan Jesús. «Marvel y Hulu anuncian el reparto de 'Runaways'». www.lacasadeel.net. Consultado el 4 de marzo de 2017.
+ . «[Series] La segunda temporada de Marvel’s Runaways llegará el 21 de diciembre y primera sinopsis». Blog de Superhéroes. 13 de agosto de 2018. Consultado el 13 de agosto de 2018.
+ . «CLOAK AND DAGGER YA TIENE FECHA DE ESTRENO». IGN Latinoamérica. 19 de enero de 2018. Consultado el 19 de enero de 2018.
+ . Schwartz, Terri (11 de enero de 2016). «SECOND MARVEL COMEDY IN DEVELOPMENT AT ABC». IGN (en inglés)Consultado el 13 de enero de 2016.
+ . Goldberg Lesley, Lesley (5 de abril de 2017). «Marvel's 'New Warriors,' With Squirrel Girl, Ordered Straight-to-Series at Freeform (Exclusive)». The Hollywood reporter (en inglés). Consultado el 8 de mayo de 2017.
+ . Waigmester, Elizabeth (7 de abril de 2016). «Freeform Greenlights Marvel Romance Superhero Series ‘Cloak and Dagger’ (EXCLUSIVE)». Variety (en inglés). Consultado el 7 de abril de 2016.
+ . «Steven S. DeKnight Joins 'Marvel's Daredevil'». Marvel.com. 24 de mayo de 2014. Archivado desde el original el 24 de mayo de 2014. Consultado el 24 de mayo de 2014.
+ . Cavanaugh, Patrick (21 de abril de 2015). «Netflix Orders a Second Season of 'Marvel's Daredevil'». Marvel.com. Archivado desde el original el 22 de abril de 2015. Consultado el 21 de abril de 2015.
  «[Series] Nuevas imágenes de la tercera temporada de Marvel’s Daredevil». Blog de Superhéroes. Texto «urlhttps://blogdesuperheroes.es/series-nuevas-fotos-de-la-tercera-temporada-de-daredevil/» ignorado (se sugiere |url=) (ayuda);
  Couch, Aaron (12 de noviembre de 2013). «Melissa Rosenberg to Oversee Marvel's Jessica Jones Series for Netflix». The Hollywood Reporter. Archivado desde el original el 28 de junio de 2014. Consultado el 6 de febrero de 2014.
  Spangler, Todd (31 de marzo de 2015). «Netflix, Marvel Pick ‘Luke Cage’ Showrunner, Cheo Hodari Coker». Variety. Archivado desde el original el 31 de marzo de 2015. Consultado el 31 de marzo de 2015.
@@ -270,11 +270,11 @@ Referencias:
  «Doctor Strange (2016) - Box Office Mojo». www.boxofficemojo.com. Archivado desde el original el 23 de abril de 2018. Consultado el 11 de mayo de 2019.
  «Guardians of the Galaxy Vol. 2 (2017) - Box Office Mojo». www.boxofficemojo.com. Consultado el 11 de mayo de 2019.
  «Spider-Man Homecoming (2017) - Box Office Mojo». www.boxofficemojo.com. Consultado el 11 de mayo de 2019.
- «Thor: Ragnarok (2017) - Box Office Mojo». www.boxofficemojo.com. Consultado el 11 de mayo de 2019.
- «Black Panther (2018) - Box Office Mojo». www.boxofficemojo.com. Consultado el 11 de mayo de 2019.
- «Avengers: Infinity War (2018) - Box Office Mojo». www.boxofficemojo.com (en inglés). Consultado el 11 de mayo de 2019.
- «Ant-Man and the Wasp (2018) - Box Office Mojo». www.boxofficemojo.com. Consultado el 11 de mayo de 2019.
- «Captain Marvel (2019) - Box Office Mojo». www.boxofficemojo.com. Consultado el 11 de mayo de 2019.
- «Avengers: Endgame (2019) - Box Office Mojo». www.boxofficemojo.com. Consultado el 15 de agosto de 2019.
- «Spider-Man: Far from Home (2019) - Box Office Mojo». www.boxofficemojo.com. Consultado el 15 de agosto de 2019.
- «Marvel Cinematic Universe at the Box Office - Box Office Mojo». www.boxofficemojo.com. Consultado el 11 de mayo de 2019.
+ . «Thor: Ragnarok (2017) - Box Office Mojo». www.boxofficemojo.com. Consultado el 11 de mayo de 2019.
+ .  «Black Panther (2018) - Box Office Mojo». www.boxofficemojo.com. Consultado el 11 de mayo de 2019.
+ . «Avengers: Infinity War (2018) - Box Office Mojo». www.boxofficemojo.com (en inglés). Consultado el 11 de mayo de 2019.
+ . «Ant-Man and the Wasp (2018) - Box Office Mojo». www.boxofficemojo.com. Consultado el 11 de mayo de 2019.
+ . «Captain Marvel (2019) - Box Office Mojo». www.boxofficemojo.com. Consultado el 11 de mayo de 2019.
+ . «Avengers: Endgame (2019) - Box Office Mojo». www.boxofficemojo.com. Consultado el 15 de agosto de 2019.
+ . «Spider-Man: Far from Home (2019) - Box Office Mojo». www.boxofficemojo.com. Consultado el 15 de . agosto de 2019.
+.  «Marvel Cinematic Universe at the Box Office - Box Office Mojo». www.boxofficemojo.com. Consultado el 11 de mayo de 2019.
